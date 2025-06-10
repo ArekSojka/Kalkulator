@@ -1,0 +1,1 @@
+# Kalkulator-z-obs-ug-b-d-w
